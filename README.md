@@ -1,0 +1,2 @@
+# Uchiha
+KARIZMANIN OZ EVLADI
